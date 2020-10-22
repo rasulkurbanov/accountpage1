@@ -5,7 +5,7 @@
 ## I'm a developer and enthusiastic learner!
 
 - 🌱 I’m currently learning everything 
-- 🥅 2020 Goals: Workking for one of the big companies in Uzbekistan
+- 🥅 2020 Goals: Working for one of the big companies in Uzbekistan
 - ⚡ Fun fact: I don't know how to draw and play the piano 🤣
 
 
